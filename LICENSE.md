@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://WiseGuardianDemolish.github.io/get-strong-for-bra-xn39/) |
  |---------------------|----------------------:|
 
 
